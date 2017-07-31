@@ -1,0 +1,2 @@
+# latihanpertama
+hallo
